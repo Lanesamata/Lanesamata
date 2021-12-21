@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lanesamata
-- 👀 I’m interested in industrial design and fun art 
+- 👀 I’m interested in industrial design and digital art 
 - 🌱 I’m currently learning UX design
 - 💞️ I’m looking to collaborate on fun projects 
 - 📫 How to reach me lanesamata1@gmail.com
